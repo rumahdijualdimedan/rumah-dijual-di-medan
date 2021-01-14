@@ -1,2 +1,2 @@
-# rumah-dijual-di-medan
-Saya siap membantu anda untuk menjualkan rumah atau tanah atau ruko anda, karena saya sudah berpengalaman sebagai agen property di medan, sudah beberapa rumah dijual di medan yang berhasil kami bantu jualkan, dan juga tanah dijual di medan, termasuk hotel dijual di medan
+# rumahdijualdimedan
+Saya siap membantu anda untuk menjualkan rumah atau tanah atau ruko anda, karena saya sudah berpengalaman sebagai agen property di medan, sudah beberapa <a href="https://www.medanhouse.com/search/label/Rumah-dijual-dimedan?max-results=12">rumah dijual di medan</a> yang berhasil kami bantu jualkan, dan juga <a href="https://www.medanhouse.com/search/label/tanah-dijual?max-results=12">tanah dijual di medan</a>, termasuk hotel dijual di medan
